@@ -1,1 +1,0 @@
-# MedTech-Fest-AIIMSG-2026
